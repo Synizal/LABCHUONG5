@@ -1,2 +1,0 @@
-# LABCHUONG5
-2D VA 3D
